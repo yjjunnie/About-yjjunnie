@@ -1,3 +1,3 @@
 # About me! My name is **Holly** 
 - I am a **Computer Science** student 
-- Currently in a court case with ariq koh boon xiong
+- Currently losing a court case against ariq koh boon xiong because i am guilty.
